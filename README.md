@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Ruka-Sarashina
+- 👀 I’m interested in programming and wanted to give it a go, to do something creative and fun aside from my sociology studies.
+- 🌱 I’m currently learning Python and R.
+- 💞️ I’m looking to collaborate on ... it's hard to tell. At least for now, beacuse I'm a real freshman in it!
+- 📫 If you want to reach me write on Discord @aniprotag
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I like to eat my kiwi unpeeled.
